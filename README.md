@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+https://l-e.notion.site/Home-58cd2a6510f24233a4aaaa637d5280bf
+
 <!--
 **ktywb/ktywb** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
