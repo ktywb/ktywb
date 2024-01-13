@@ -1,6 +1,6 @@
 ### Hi there [👋](https://l-e.notion.site/Home-58cd2a6510f24233a4aaaa637d5280bf) 
 
-Kyushu U Student
+
 
 
 
