@@ -3,7 +3,7 @@
 
 ***找工作好难啊家人们***  
 
-***小豆泥可爱捏[](https://i.pximg.net/user-profile/img/2022/02/09/23/43/41/22198212_2fcc680e0a3cc2f99bd585edaf26111c_170.png)***  
+***小豆泥可爱捏[]([https://i.pximg.net/user-profile/img/2022/02/09/23/43/41/22198212_2fcc680e0a3cc2f99bd585edaf26111c_170.png](https://cdn.amebaowndme.com/madrid-prd/madrid-web/images/sites/872321/3beb04300cceaac6197966ba022e078b_af10d3e1fe82e08b247e5cbfaf23501e.png?option=crop&width=176&height=176))***  
 
 - 🌱 I’m currently learning Computer Science  
 - 🏫 Studying at [Kyushu University](https://www.kyushu-u.ac.jp/en/)
