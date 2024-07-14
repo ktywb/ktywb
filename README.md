@@ -1,7 +1,9 @@
 ### Hi there [👋](https://xiaodouni.cn) 
 
 
-***找工作好难啊家人们***
+***找工作好难啊家人们***  
+
+***小豆泥可爱捏[](https://i.pximg.net/user-profile/img/2022/02/09/23/43/41/22198212_2fcc680e0a3cc2f99bd585edaf26111c_170.png)***  
 
 - 🌱 I’m currently learning Computer Science  
 - 🏫 Studying at [Kyushu University](https://www.kyushu-u.ac.jp/en/)
