@@ -4,7 +4,7 @@
 ***找工作好难啊家人们***
 
 - 🌱 I’m currently learning Computer Science  
-- 🏫 Studying at ![Kyushu University](https://www.kyushu-u.ac.jp/en/)
+- 🏫 Studying at [Kyushu University](https://www.kyushu-u.ac.jp/en/)
 
 
 <!--
