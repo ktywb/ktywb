@@ -1,13 +1,5 @@
 ### Hi there [👋](https://) 
 
-
-
-找工作好难啊家人们😭
-
-
-
-小豆泥可爱捏 
-
 ![-](https://cdn.amebaowndme.com/madrid-prd/madrid-web/images/sites/872321/3beb04300cceaac6197966ba022e078b_af10d3e1fe82e08b247e5cbfaf23501e.png?option=crop&width=176&height=176)
 
 
